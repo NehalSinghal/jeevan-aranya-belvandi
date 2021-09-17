@@ -2,13 +2,15 @@
 
 ##  2021-09-17 
 
-Bamboo net. Bamboo dome for polyhouse effect without using polythene.
+Bamboo net. 
+
+Bamboo dome for polyhouse effect without using polythene.
 
 Work with available material.
 
 Joshanda seeds. For health and sowing.
 
-Sahjan (Moringa) cultivated. Multi cropping most important. More than  16000 saplings planted in belvandi farm in 50 Acre. Sweet variety plant of Sahjan at Sudha Mishra aunty house, Dehradun. Right variety plantation of Sahjan crucial.
+Sahjan (Moringa) cultivated. Multi cropping most important. More than 16000 saplings planted in belvandi farm in 50 Acre. Sweet variety plant of Sahjan at Sudha Mishra aunty house, Dehradun. Right variety plantation of Sahjan crucial.
 
 Amla can be in farm for multi-cropping too. Doesn't harm crop growing under it. Amla can be planted at boundary. 
 
@@ -21,9 +23,11 @@ Multi cropping in 30-40 acres. Ginger and Sahjan (Moringa) planted together.
 Survival rate is 100% for Moringa. Dense forest of Moringa will grow.
 16000 plants are too much.
 
-Deepak ji is level handed person. Hard-working. Heart to heart relation with Deepak ji. People cannot be bound by mind. It's heart only that brings people together.
+Deepak ji is level headed person. Hard-working. Heart to heart relation with Deepak ji. People cannot be bound by mind. It's heart only that brings people together.
 
-Moringa powder. Leaves to be powdered. Flowers. Drumsticks. Maintenance free tree.
+Moringa powder. Leaves to be powdered. 
+
+Flowers. Drumsticks. Maintenance free tree.
 
 Little trimming required. But even if that is not there still it's a sturdy plant.
 
@@ -100,4 +104,5 @@ Who's farm? Whether a federation or common decision regulated on all?
 - Belvandi as base to manage Pune market. 
 - [ ] Aim of Farming at Belvandi to be clear. 
 
-For Suggestions, [join Telegram Group](https://t.me/joinchat/ZVxD4emjcAFhMWQ1). 
+
+Join the Community online- [Join Telegram Channel](https://t.me/joinchat/ZVxD4emjcAFhMWQ1)
