@@ -99,12 +99,11 @@ Who's farm? Whether a federation or common decision regulated on all?
 - [ ] Bamboo Dome
 - Bananas
 - [ ] Moringa
-    - [ ] Processing 
-    - [ ] Supply Chain
 - Right variety of Jackfruit
 - Lemon Grass
 - Terrace farming
 - Citronella
+- [ ] Processing & Supply Chain of above
 - Belvandi as base to manage Pune market.
 - [ ] Aim of Farming at Belvandi to be clear. 
 
