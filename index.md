@@ -95,13 +95,17 @@ Who's farm? Whether a federation or common decision regulated on all?
 ### SUGGESTIONS 
 
 - Amla
-- [ ] Bamboo. Bamboo Dome. 
+- [ ] Bamboo
+- [ ] Bamboo Dome
 - Bananas
-- [ ] Moringa. Processing and Supply Chain. 
+- [ ] Moringa
+    - [ ] Processing 
+    - [ ] Supply Chain
 - Right variety of Jackfruit
-- Lemon Grass. Terrace farming. 
+- Lemon Grass
+- Terrace farming
 - Citronella
-- Belvandi as base to manage Pune market. 
+- Belvandi as base to manage Pune market.
 - [ ] Aim of Farming at Belvandi to be clear. 
 
 
