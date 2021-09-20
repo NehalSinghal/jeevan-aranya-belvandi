@@ -108,4 +108,6 @@ Who's farm? Whether a federation or common decision regulated on all?
 - [ ] Aim of Farming at Belvandi to be clear. 
 
 
-Join the Community online- [Join Telegram Channel](https://t.me/joinchat/ZVxD4emjcAFhMWQ1)
+### Join the Community online - [Join Telegram Channel](https://t.me/jeevanaranyabelvandi)
+
+[Moderated Channel Benefits](moderated-channel-benefits.md) | [सम्यक समूह लाभ](सम्यक-समूह-लाभ.md)
