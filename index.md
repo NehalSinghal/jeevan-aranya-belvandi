@@ -1,4 +1,4 @@
-# Jeevan Aranya Belvandi
+# Jeevan Aranya Belvan
 
 ##  2021-09-17 
 
@@ -35,11 +35,11 @@ First year survival is crucial. End of season rain, this year 2021, is very good
 
 Papaya also grown. Papaya and Moringa alternate planting. Deepak ji is real master in horticulture.
 
-Banana must be planted. Labor issue in Belvandi.
+Banana must be planted. Labor issue in Belvan.
 
 Supervision also needed.
 
-Vinish Gupta ji, Goa: Shramdaan based volunteering. Children groups can visit Belvandi farm. Satsang. Online/offline. Labor needed only for weeding. Otherwise all done by volunteers.
+Vinish Gupta ji, Goa: Shramdaan based volunteering. Children groups can visit Belvan farm. Satsang. Online/offline. Labor needed only for weeding. Otherwise all done by volunteers.
 
 Jackfruit: Right varieties saplings to be found. Jackfruit expert with us. Jackfruit saplings will be organised. 
 
@@ -55,24 +55,24 @@ Herbal Garden should come up.
 
 Amazon is also only in supply chain management, yet more influence than producers.
 
-Online initiative for Belvandi. Prateek effort. Core Team Management weak. It takes atleast two years to establish a business.
+Online initiative for Belvan. Prateek effort. Core Team Management weak. It takes atleast two years to establish a business.
 
-Belvandi to Pune goods transportation, mini truck rate. Distribution.
+Belvan to Pune goods transportation, mini truck rate. Distribution.
 
 Value unlocking.
 Make people farmers. Terrace farming. All kinds of plants.
 
 Office going people have vacant terrace. Facilitate urban farming for urban people. Khetify from IIT KGP guys in Gurgaon. Highly monetized. We should make open source, sharing, caring and justified, people centric community based inclusive sustainable model.
 
-Make Belvandi base. Handle Pune and other regions from Belvandi.
+Make Belvan base. Handle Pune and other regions from Belvan.
 
 Black pepper also sowed. 3-4 places black pepper planted.
 
 Black pepper development in dome. Unni Nair house in Conoor, Kerala. Dense forest in his house.
 
-Neem was not growing. Mahaneem as an alternative to Neem grows in Dehradun. Looks somewhat like Neem. Color lighter than Neem. Used for medicine and plywood. Belvandi also has Mahaneem. Turmeric. Black pepper planted at Mahaneem base.
+Neem was not growing. Mahaneem as an alternative to Neem grows in Dehradun. Looks somewhat like Neem. Color lighter than Neem. Used for medicine and plywood. Belvan also has Mahaneem. Turmeric. Black pepper planted at Mahaneem base.
 
-Snakes not seen so far at Belvandi farm.
+Snakes not seen so far at Belvan farm.
 
 Bamboo and bananas to be planted. **TODO**
 
@@ -104,10 +104,6 @@ Who's farm? Whether a federation or common decision regulated on all?
 - Terrace farming
 - Citronella
 - [ ] Processing & Supply Chain of above
-- Belvandi as base to manage Pune market.
-- [ ] Aim of Farming at Belvandi to be clear. 
+- Belvan as base to manage Pune market.
+- [ ] Aim of Farming at Belvan to be clear. 
 
-
-### Join the Community online - [Join Telegram Channel](https://t.me/jeevanaranyabelvandi)
-
-[Moderated Channel Benefits](moderated-channel-benefits.md) | [सम्यक समूह लाभ](सम्यक-समूह-लाभ.md)
